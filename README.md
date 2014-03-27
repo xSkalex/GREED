@@ -1,0 +1,4 @@
+GREED
+=====
+
+asfesfsfsfsdf
